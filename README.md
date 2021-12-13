@@ -1,1 +1,2 @@
 # generators
+When the power goes out, a generator can keep your house warm (or cool), your kitchen cooking, and your computers and phones charging. Sales spike around major storms—just before and a few weeks after—which means that too many buyers shop when the power’s out <a href="https://allgeneratorinfo.com/">click here now</a>, randomly choosing a generator that looks up to the task, and then have no idea what to do with it when they get it home.
